@@ -3,4 +3,4 @@
 🐶Gosto de animais      
 🫂Gosto de ficar com a mina familia              
 🏐Gosto de jogar volei          
-![](https://media.tenor.com/YDTCgvpbwYYAAAAd/dog-smiling.gif)
+![](https://media.tenor.com/u4PxY9XSwH0AAAAC/baby-shy.gif)
